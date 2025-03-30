@@ -25,3 +25,5 @@
 
 * I love to talk about my fixations, stories or my kinnies .. It can get annoying.
 * I like everything that has to do with fluff or angst, not smut.
+* I have a hard time speaking or communicating many times, please be patient.
+* If you don't like any of my attitudes, you can tell me without any problem.
