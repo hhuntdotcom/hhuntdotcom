@@ -1,18 +1,16 @@
 
 
-> [!WARNING]
-> I'm discovering things about myself... and it's a slow process.
-
-
 ![tumblr_670e25fe35ceadd3133c725e1ec2450e_13bf1e63_1280](https://github.com/user-attachments/assets/e09aede3-57f3-4da2-981e-ebdd4831e97e)
 
 
-![Picsart_25-03-30_18-38-40-006](https://github.com/user-attachments/assets/c7e2d581-e238-42ef-a9fa-9a5446a75e5a)
+<html>
 
+   
 
-![tumblr_c49e6b3a26a5f5e56ec369152def537b_f28a1e15_1280](https://github.com/user-attachments/assets/950c19c4-330b-4358-8af0-d44918ab79be)
+![Picsart_25-03-30_18-38-40-006](https://github.com/user-attachments/assets/b80fc499-890b-4e25-b27f-3fffdd057bfb)
 
-<div align="center">
+![tumblr_c49e6b3a26a5f5e56ec369152def537b_f28a1e15_1280](https://github.com/user-attachments/assets/31bc92e3-8cf0-4b0e-a472-d8adb532a44b)
+
   
 ***"Hey hey hey.. lover!"***
 
