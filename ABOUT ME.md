@@ -39,5 +39,14 @@
 * A bit.. slow. Okay I'm a lot of slow, sorry.
 * I don't like hate between fandoms, respect my tastes.
 * I avoid problematic ships, if that bothers you, it's better not to interact. .
+* When I get comfortable, I can insult (obviously not loudly) but if that bothers you, tell me.
 
-#
+# DNI
+
+* If you are racist, homophobic, transphobic, xenophobic, classist, etc.
+* Zoophiles, pedophiles. Disgusting as fuck.
+* If you support problematic ships.
+
+# INT
+
+* Any kind of person !!!!
