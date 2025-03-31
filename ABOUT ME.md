@@ -1,4 +1,7 @@
-![hycwab](https://github.com/user-attachments/assets/0a8f2458-2c08-4deb-a499-c54ec4cc2fbb)
+
+
+> [!WARNING]
+> I'm discovering things about myself... and it's a slow process.
 
 
 ![tumblr_670e25fe35ceadd3133c725e1ec2450e_13bf1e63_1280](https://github.com/user-attachments/assets/e09aede3-57f3-4da2-981e-ebdd4831e97e)
@@ -27,9 +30,14 @@
 ・
 ・
 
-## BEFORE YOU INTERACT !
+# BEFORE YOU INTERACT !
 
 * I love to talk about my fixations, stories or my kinnies .. It can get annoying.
 * I like everything that has to do with fluff or angst, not smut.
 * I have a hard time speaking or communicating many times, please be patient.
 * If you don't like any of my attitudes, you can tell me without any problem.
+* A bit.. slow. Okay I'm a lot of slow, sorry.
+* I don't like hate between fandoms, respect my tastes.
+* I avoid problematic ships, if that bothers you, it's better not to interact. .
+
+#
