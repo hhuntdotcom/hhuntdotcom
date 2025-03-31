@@ -47,6 +47,3 @@
 * Zoophiles, pedophiles. Disgusting as fuck.
 * If you support problematic ships.
 
-# INT
-
-* Any kind of person !!!!
