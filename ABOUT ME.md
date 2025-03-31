@@ -8,7 +8,20 @@
 
 ![tumblr_c49e6b3a26a5f5e56ec369152def537b_f28a1e15_1280](https://github.com/user-attachments/assets/950c19c4-330b-4358-8af0-d44918ab79be)
 
-***"Hey hey hey.. lover!"*** <Center>
+<div align="center">
+  
+***"Hey hey hey.. lover!"***
+
+ *Haii, I'm a weirdo irl.. My name is Hunter, I'm a minor (fourteen!), I use masculine pronouns and... uh, I'm non-binary ! I speak Spanish, and I try to do it in English.*
+
+ ### Interests:
+ — MCSM (Minecraft Story Mode rahhh)
+ — EPIC the Musical
+ — Greek mythology
+ — WBNSxMC
+ — The Mandela Catalogue
+ — The Walten Files
+ — Slendytubbies! etc..
 
 ・
 ・
