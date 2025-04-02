@@ -1,6 +1,12 @@
 # ★ ABOUT ME 
 
+![mbqfm4](https://github.com/user-attachments/assets/9cd7e36a-ba88-437b-8f66-ce1d1e4ff67e)
+
+
 ![Picsart_25-04-01_19-23-21-951](https://github.com/user-attachments/assets/278069a8-e09d-4bd0-85a3-fb5022fcd2aa)
+
+
+![hkbsfy](https://github.com/user-attachments/assets/92a64b1a-3bbb-4267-9892-a808fd46f8af)
 
 
   
