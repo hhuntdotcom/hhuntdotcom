@@ -1,6 +1,6 @@
 # ★ ABOUT ME 
 
-![Picsart_25-04-01_19-20-13-104](https://github.com/user-attachments/assets/67ca1bdf-8fb6-4663-9230-00dbad8bd175)
+![Picsart_25-04-01_19-23-21-951](https://github.com/user-attachments/assets/278069a8-e09d-4bd0-85a3-fb5022fcd2aa)
 
 
   
