@@ -1,7 +1,10 @@
-# ★ ABOUT ME 
+<p align="center"> # ★ ABOUT ME 
 
-![mbqfm4](https://github.com/user-attachments/assets/9cd7e36a-ba88-437b-8f66-ce1d1e4ff67e)
+<div align="center">
 
+  ![mbqfm4](https://github.com/user-attachments/assets/9cd7e36a-ba88-437b-8f66-ce1d1e4ff67e)
+
+<div align="center">
 
 ![Picsart_25-04-01_19-23-21-951](https://github.com/user-attachments/assets/278069a8-e09d-4bd0-85a3-fb5022fcd2aa)
 
@@ -12,13 +15,13 @@
   
 ***"Hey hey hey.. lover!"***
 
- *Haii, I'm a weirdo irl.. My name is Hunter, I'm a minor (14teen!), I use masculine pronouns and... uh, I'm non-binary ! I speak Spanish, and I try to do it in English.*
+*Haii, I'm a weirdo irl.. My name is Hunter, I'm a minor (14teen!), I use masculine pronouns and... uh, I'm non-binary ! I speak Spanish, and I try to do it in English.*
 
 *I'm nice and friendly vro, please believe me fkkrkrkeirk*
 
 *I'm a bit of theater kid, a fan of musicals, Greek mythology, analog or psychological horror and ARGs.*
 
-# BEFORE YOU INTERACT !
+ # BEFORE YOU INTERACT ! 
 
 ♡ I love to talk about my fixations, stories or my kinnies .. It can get annoying.
 
