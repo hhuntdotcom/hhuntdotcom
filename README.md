@@ -1,4 +1,6 @@
-<p align="center"> # ★ ABOUT ME 
+<p align="center">
+  
+# ★ ABOUT ME 
 
 <div align="center">
 
