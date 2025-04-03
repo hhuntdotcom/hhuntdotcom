@@ -4,7 +4,8 @@
 
 <div align="center">
 
-![lymq7p](https://github.com/user-attachments/assets/47deefe9-dcd2-4e80-a17b-c25ad3a265cd)
+![m1x958](https://github.com/user-attachments/assets/d9a010b9-ab29-4de1-9f4a-2b018a530b2c)
+
 
 
 <div align="center">
@@ -23,5 +24,7 @@
 *I'm nice and friendly vro, please believe me fkkrkrkeirk*
 
 *I'm a bit of theater kid, a fan of musicals, Greek mythology, analog or psychological horror and ARGs.*
+
+(Profile is best viewed on mobile, tbh)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wo7nptipttwixjeqmjosfyny7q&cover_image=true&theme=novatorem&show_offline=false&background_color=443c85&interchange=false&bar_color=321d8f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
